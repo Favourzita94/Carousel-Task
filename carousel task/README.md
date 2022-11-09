@@ -1,1 +1,1 @@
-This is my readme file for the carousel/slideshow task and this task was done by Nkemdilim Favour
+This is my readme file for the carousel/slideshow task and this task was done by Nkemdilim Favour Amarachi
